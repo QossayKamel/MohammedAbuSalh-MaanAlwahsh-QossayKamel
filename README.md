@@ -1,2 +1,2 @@
-# MohammedAbuSalh-MaanAlwahsh-QossayKamel
+# MohammedAbuSalh-QossayKamel
 Assignment 3
